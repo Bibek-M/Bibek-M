@@ -1,7 +1,7 @@
 # Hello Worldl:👋🏼;
 
 
-![242390524-0c7eb6ed-663b-4ce4-bfbd-18239a38ba1b](https://github.com/user-attachments/assets/6a19ffb3-afe3-4c38-944d-16aa3b2cacdf)
+
 
 
 
